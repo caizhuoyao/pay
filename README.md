@@ -26,4 +26,4 @@
 ![image](https://github.com/caizhuoyao/pay/blob/main/img/1675234915726.jpg)
 ![image](https://github.com/caizhuoyao/pay/blob/main/img/1675234931444.jpg)
 ![image](https://github.com/caizhuoyao/pay/blob/main/img/1675234947722.jpg)
-![image](https://github.com/caizhuoyao/pay/blob/main/img/1675234965562.jpg
+![image](https://github.com/caizhuoyao/pay/blob/main/img/1675234965562.jpg)
